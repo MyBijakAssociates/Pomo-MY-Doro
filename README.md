@@ -7,9 +7,9 @@
 
 ---
 
-## 🚀 Main Sekarang
+## 🚀 Belajar dengan lebih efektif!
 
-Game ini boleh dimainkan terus melalui pelayar web (browser) tanpa perlu memuat turun sebarang aplikasi. Klik pautan di bawah untuk mula bermain:
+Alat bantu belajar ini boleh dimainkan terus melalui pelayar web (browser) tanpa perlu memuat turun sebarang aplikasi. Klik pautan di bawah untuk bermula:
 
 👉 **[KLIK DI SINI UNTUK BERMULA:
 
